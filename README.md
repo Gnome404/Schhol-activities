@@ -1,1 +1,1 @@
-# Schhol-activities
+# School-activities
